@@ -1,2 +1,2 @@
 # Discord-Server-Updates-bot
-testing 123
+Hello! I am swaggypiecat's new helper! I will be posting his updates from now on! :) 
