@@ -1,1 +1,1 @@
-Hello! I am swaggypiecat's new helper bot! :) I post updates!
+Testing, testing. Hey, is this thing on?
